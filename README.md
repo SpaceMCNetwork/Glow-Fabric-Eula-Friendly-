@@ -1,1 +1,1 @@
-# Glow-Fabric-Eula-Friendly-
+# Glow-Fabric-Eula-Friendly
